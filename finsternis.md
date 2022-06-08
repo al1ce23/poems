@@ -1,0 +1,49 @@
+# Finsternis
+
+Nun sitz ich hier
+
+in völlger finsternis
+
+Allein und denk an dich
+
+Doch du nicht an mich
+
+Bist ein andrer mensch
+
+Ganz unerwartet
+
+und plötzelich
+
+Hinterlässt so viel doch
+
+es hat keinen wert im hier und jetzt
+
+Es bleibt allein die finsternis
+
+Kalt wie eine sternklare nacht
+
+Hätt ichs mit dir warm und tag gemacht
+
+doch die zeit vorbei
+
+Wo zusammen durchgemacht
+
+Jeder für sich allein
+
+das leben verbracht
+
+Doch so war nie angedacht
+
+Wollt immer mehr für dich
+
+Für uns
+
+Allzeit wandelbar
+
+Die eigentliche kunst
+
+Doch nun liegt es da
+
+Offen und verletzt
+
+In völlger Finsternis
